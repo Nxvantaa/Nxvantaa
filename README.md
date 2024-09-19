@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nxvantaa
+- 👀 I’m interested in minecraft mod
+- 🌱 I’m currently learning java/c++/py
+- 📫 How to reach me nxvantaa.contact@gmail.com
+- 😄 Pronouns: he/him
